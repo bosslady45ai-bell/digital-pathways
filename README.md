@@ -1,0 +1,9 @@
+Copyright and permitted use
+Copyright © 2026 Ronda Bell. All rights reserved in original materials owned by Ronda Bell.
+Ronda Bell owns the original lesson text, activities, assessments, worksheets, and design in this instructor guide and student workbook, except for third-party material identified in the course.
+License to Home4Good Inc.
+Original course materials developed and owned by Ronda Bell are licensed to Home4Good Inc. for authorized educational and charitable use. Eligible participants in authorized Home4Good reentry programs may access designated materials free of charge for personal learning and educational purposes. Participants may complete assignments, retain resources expressly designated as downloadable, and use the skills they learn. Keep this ownership and attribution notice on authorized copies.
+Limits on use
+Free participant access does not transfer copyright ownership or grant permission to sell, republish, commercially distribute, rebrand, materially modify, or present these materials as another party’s original work. Requests for additional reproduction, distribution, or institutional use should be directed to Home4Good Inc. at home4good@bellahvisions.com.
+Third-party material
+Cited sources, names, logos, and other third-party content remain the property of their respective owners. All use remains subject to applicable law and authorized permissions. For additional permissions, contact Home4Good Inc. at home4good@bellahvisions.com or visit https://programs.bellahvisions.com.
